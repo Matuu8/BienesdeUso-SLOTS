@@ -1,0 +1,1 @@
+# BienesdeUso-SLOTS
